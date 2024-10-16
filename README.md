@@ -9,4 +9,12 @@
 
 # Punto 2:
 
+![image](https://github.com/user-attachments/assets/b2260589-3ba7-479d-973e-4c363876b27a)
 
+![image](https://github.com/user-attachments/assets/a491791b-fc2e-407c-984b-f74dcab63eb3)
+
+# Punto 3:
+
+![image](https://github.com/user-attachments/assets/5a5eed80-424b-4596-875e-b9e8de8bfd3d)
+
+![image](https://github.com/user-attachments/assets/f05d1222-fe8a-44a9-88a1-d0412e412db0)
